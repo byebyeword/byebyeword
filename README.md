@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @byebyeword；
+- 👀 I’m interested in sport，computer games，movie，reading；
+- 🌱 I’m currently learning JAVA；
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me 3048679173@
+--->
